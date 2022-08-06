@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hishamlinux
+- 👀 I’m interested in Ethical hacking/Cyber security 
+- 🌱 I’m currently learning ethical hacking/
+- 💞️ I’m looking to make friends 
+- 📫 How to reach me my gmail is hi.sham.tp740@gmail.com
